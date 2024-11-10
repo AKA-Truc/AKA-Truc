@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Truc
+- 👀 I’m interested in sports
+- 🌱 I’m currently learning at UTH
+- 📫 Contact me by https://www.facebook.com/profile.php?id=100043750564789
+- 😄 I love playing games and exploring
